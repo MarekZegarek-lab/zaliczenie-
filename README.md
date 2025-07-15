@@ -1,1 +1,1 @@
-Marek Palinowski
+Mare Palinowski
